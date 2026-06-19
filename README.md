@@ -1,0 +1,1 @@
+# G-NL-K-GAZETELER
